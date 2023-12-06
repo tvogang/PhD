@@ -1,9 +1,9 @@
-## PhD
+## PhD - Field Experiments
 
-### Fs
-#### Winter 2023/24
+### Timo Vogelsang (Frankfurt School of Finance and Management)
+#### Winter 2024
 
-_Timo_
+_preliminary_
 
 ### Organizational Issues
 
